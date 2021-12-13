@@ -4,4 +4,4 @@ Bạn có thể liên hệ tôi qua [facebook.com/dinhdjj](https://facebook.com/
 
 ### [shop.dinhdjj.com](https://shop.dinhdjj.com) `Đang hoạt động` buân bán tài khoản game vip pro lần 2 😂
 
-### [momo.dinhdjj.com](https://momo.dinhdjj.com) `Chưa hoàn thành` đổi từ thẻ cào sang momo trong 1 nốt nhạc (không đăng ký, đăng nhập gì hết 😂)
+### [momo.dinhdjj.com](https://momo.dinhdjj.com) `Đang hoạt đồng` đổi từ thẻ cào sang momo trong 1 nốt nhạc (không đăng ký, đăng nhập gì hết 😂)
